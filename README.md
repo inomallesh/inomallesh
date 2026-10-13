@@ -1,4 +1,4 @@
-Hi 👋 My name is MALLESH MARIPALLI
+Hi 👋 This is MALLESH MARIPALLI
 ==================================
 
 * 🌍  I'm based in India
